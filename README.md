@@ -1,6 +1,6 @@
 ## Brenda por aqui 👋
 
-!()https://media1.tenor.com/m/eycQDSj-tYUAAAAC/jj-outer.gif
+!(https://media1.tenor.com/m/eycQDSj-tYUAAAAC/jj-outer.gif)
 
 <!--
 **Brendargomes/Brendargomes** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
