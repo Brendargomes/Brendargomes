@@ -1,6 +1,6 @@
-## Brenda por aqui 👋
+## Oii lindos 👋
 
-Amo o jj meu namorado lindo! 
+Amo o jj ! 
 
 ![](https://media1.tenor.com/m/eycQDSj-tYUAAAAC/jj-outer.gif).
 
